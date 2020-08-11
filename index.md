@@ -1,4 +1,4 @@
-# **Privacy Policy**
+# **Privacy Policy of  the ChooseRight Application in Google Play**
 
 We have built the chooseright app as  
 a Free app. This SERVICE is provided by  
